@@ -1,32 +1,30 @@
  #readme   . 
 
-  ִֶָ˖·˳˖𓂃 ִֶָ𝑴𝒖𝒍𝒕𝒊𝒇𝒂𝒏𝒅𝒐𝒎 ˃͈◡˂͈ 
+  ִֶָ˖𓂃 ִֶָ𝑴𝒖𝒍𝒕𝒊𝒇𝒂𝒏𝒅𝒐𝒎 . 
 
-  𓇢𓆸
+  
 
-  𝑭𝒐𝒍𝒍𝒐𝒘𝒊𝒏𝒈 𝒶𝓁𝓁 𝒕𝒉𝒐𝒔𝒆 𝒘𝒉𝒐 𝓇𝑒𝒶𝒹 ♡
-𝐹𝑒𝑒𝓁 𝐹𝓇𝑒𝑒 𝑡𝑜 𝑔𝑖𝑣𝑒 𝔪𝔢 𝔱𝔦𝔭𝔰 . 
+  𝑭𝒐𝒍𝒍𝒐𝒘𝒊𝒏𝒈 𝒶𝓁𝓁 𝒕𝒉𝒐𝒔𝒆 𝒘𝒉𝒐 𝓇𝑒𝒶𝒹 
+. 
 
-𝑆𝐸𝑁𝐼𝑂𝑅, 𝒽𝑒/𝒽𝒾𝓂 ⋆·˚ ༘ *
+𝑆𝐸𝑁𝐼𝑂𝑅, 𝒽𝑒/𝒽𝒾𝓂 ⋆
 
-.⋆·˚ ༘ *
+.
 
 𝑫𝑬𝑨𝑻𝑯 𝑵𝑶𝑻𝑬 , 𝑱𝑱𝑩𝑨 , 𝑱𝑱𝑲  , (𝑒𝑡𝑐) 
-𝒻𝒶𝓃𝓈 𝐼𝑁𝑇 / 𝑐 * 𝐻 (≧◡≦) .
+𝒻𝒶𝓃𝓈 𝐼𝑁𝑇 / 𝑐 * 𝐻 .
 
 
 ![chiikawa-usagi.gif](https://github.com/user-attachments/assets/0b9f3452-a731-4cea-8027-6041647a8d22)
 
 
 . 
-ɴᴇᴡ ᴛᴏ ɢɪᴛʜᴜʙ  , ⎚_⎚)
-𓆩 
-
-sᴀᴛᴏsᴜɢᴜ   . 𓇼 ⋆.˚ 𓆝 𓆡⋆.˚ 
-
-![tumblr_84dbc467f4d2065679626572bc947434_6ccb413b_540.gif.webp](https://github.com/user-attachments/assets/7b2f95e8-923c-43d5-8802-f8b04e07ea0f)
+ᴄᴜʀɪᴏᴜsɪᴛʏᴋɪʟʟ 
 
 
 
-![tumblr_dd8ad1e74acf88a04a86965332dde8ba_8ee3ad49_540.gif](https://github.com/user-attachments/assets/e6dc5584-c189-42ac-a758-6b5c284d9347)
+
+
+
+
 
