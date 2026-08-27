@@ -14,7 +14,7 @@ death note, jjba, jjk, togainu no chi
 fans 𝐼𝑁𝑇 / 𝑐 * 𝐻 .
 
 
-https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMHB5aHlrbnl2b2c0dWt2ZWlnMWd5enptNTQ4OGlxOGd2cXJ3Nnp5NyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/DJ0unq2Lzabx8oHnxP/giphy.gif
+<div class="tenor-gif-embed" data-postid="2870397197282141259" data-share-method="host" data-aspect-ratio="1.01633" data-width="100%"><a href="https://tenor.com/view/ishowspeed-ishowspeed-yeah-right-ishowspeed-yeah-ishowspeed-right-ishowspeed-stream-gif-2870397197282141259">Ishowspeed Ishowspeed Yeah Right GIF</a>from <a href="https://tenor.com/search/ishowspeed-gifs">Ishowspeed GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 
 . 
