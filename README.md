@@ -18,7 +18,7 @@ fans 𝐼𝑁𝑇 / 𝑐 * 𝐻 .
 
 
 . 
-ᴄᴜʀɪᴏᴜsɪᴛʏᴋɪʟʟ 
+curiousitykill / kiyu. 
 
 
 
