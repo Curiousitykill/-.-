@@ -1,18 +1,17 @@
- #readme   . 
+ #readme    
 
-  ִֶָ˖𓂃 ִֶָ𝑴𝒖𝒍𝒕𝒊𝒇𝒂𝒏𝒅𝒐𝒎 . 
+  𝐦𝐮𝐥𝐭𝐢𝐟𝐚𝐧𝐝𝐨𝐦 
 
   
 
-  𝑭𝒐𝒍𝒍𝒐𝒘𝒊𝒏𝒈 𝒶𝓁𝓁 𝒕𝒉𝒐𝒔𝒆 𝒘𝒉𝒐 𝓇𝑒𝒶𝒹 
+  
 . 
-
-𝑆𝐸𝑁𝐼𝑂𝑅, 𝒽𝑒/𝒽𝒾𝓂 ⋆
+sᴇʀɪᴏʀ, ʜᴇ/ʜɪᴍ
 
 .
 
-𝑫𝑬𝑨𝑻𝑯 𝑵𝑶𝑻𝑬 , 𝑱𝑱𝑩𝑨 , 𝑱𝑱𝑲  , (𝑒𝑡𝑐) 
-𝒻𝒶𝓃𝓈 𝐼𝑁𝑇 / 𝑐 * 𝐻 .
+death note, jjba, jjk, togainu no chi
+fans 𝐼𝑁𝑇 / 𝑐 * 𝐻 .
 
 
 ![chiikawa-usagi.gif](https://github.com/user-attachments/assets/0b9f3452-a731-4cea-8027-6041647a8d22)
