@@ -1,25 +1,13 @@
- #readme    
 
-  𝐦𝐮𝐥𝐭𝐢𝐟𝐚𝐧𝐝𝐨𝐦 
-
-  
-
-  
-. 
-sᴇʀɪᴏʀ, ʜᴇ/ʜɪᴍ
-
-.
-
-death note, jjba, jjk, togainu no chi
-fans 𝐼𝑁𝑇 / 𝑐 * 𝐻 
+ʜᴇ/ʜɪᴍ
 
 
-<img width="200" height="198" alt="Image" src="https://github.com/user-attachments/assets/9e083c92-1105-4160-b1a2-02cee7603ab5" />
+People who watch Minecraft youtubers, certain people like GroxMC,Froggydude, SlipperyHC, Lookout3D, ThatMob, Whispy, and Twixxel INT, all other fandoms are also included.
 
 
-. 
-curiousitykill / kiyu. 
+<img width="200" height="198" alt="Image" src="https://github.com/user-attachments/assets/9e083c92-1105-4160-b1a2-02cee7603ab5" 
 
+You can call me Ender, or Weep. My name is still being considered too.
 
 
 
